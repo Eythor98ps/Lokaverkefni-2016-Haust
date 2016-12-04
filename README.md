@@ -1,1 +1,1 @@
-# Lokaverkefni-2016-Haust
+# Lokaverkefni-2016-Haust.
